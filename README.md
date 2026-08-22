@@ -2,7 +2,7 @@
   
 $$\color{#f0219d}\text{" I'll make your last living moments... ABSOLUTELY beautiful! "}$$
 
-$$\color{#f0219d}\text{spam account, block if unwanted!}$$
+$$\color{#f0219d}\text{under remake!}$$
 
 <p align="center"
 
